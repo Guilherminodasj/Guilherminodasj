@@ -1,16 +1,15 @@
-## Hi there 👋
+### GUILHERME PRAZER EM CONHECE-LOS E BEM VINDO AO MEU PERFIL 
 
-<!--
-**Guilherminodasj/Guilherminodasj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é guilherme 
 
-Here are some ideas to get you started:
+- Estudo no colegio pimpão
+- Estudo alura
+- E trabaalho no bar no fims de semana
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### VOCÊ PODE ENTRAR EM CONTATO COMIGO
+
+GUILHERMENIKODEMSKI72@GMAIL.COM
+
+@guilherme_nikodemski51
+
+![_](https://media1.tenor.com/m/OqVuw-vvOxAAAAAC/car-dreak.gif)
